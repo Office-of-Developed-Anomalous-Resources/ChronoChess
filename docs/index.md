@@ -2,3 +2,4 @@
 
 I hear you are working on a time-travel game, William Chaos Louis Lively Bokov Jackson! Because you are on my nice list, and because a game like this will bring joy to weird people, and because (for obvious reasons) I am highly interested in all time-travel research, here is a domain name and a website you can use to host and manage your project. I am sure your dad will be more than happy to help you use the many features of this website. Your dad will also be happy to help you _stop_ using the many features of this website and move it to something simpler, because he respects the fact that this is your project and your website, and he wants it to meet your goals rather than his. He will also be happy to leave you alone and not help unless you actually ask him. Trust me, he will be happy to do all of these things, I had a talk with him.
 
+-- Sincerely, Most. Rev. Nicholas "Kris" Kringle of Myrna D.D.
