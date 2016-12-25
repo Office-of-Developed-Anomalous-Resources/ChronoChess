@@ -1,2 +1,4 @@
-# ChronoChess
-A 3D chess variant where the third dimension is time.
+# Ho Ho Ho!!!
+
+I hear you are working on a time-travel game, Will Jackson! Because you're on my nice list, and because a game like this will bring joy to weird people, and because for obvious reasons I'm highly interested in time-travel research, here is a domain name and a website you can use to host and manage your project. I'm sure your dad will be more than happy to help you use the many features of this website. Your dad will also be happy to help you _stop_ using the many features of this website and move it to something simpler, because it's your project and your website, and your dad wants it to meet your goals rather than his own. He will also be happy to leave you alone and not help unless you actually ask him. Trust me, he will be happy to do all these things, I had a talk with him.
+
